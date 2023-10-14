@@ -3,3 +3,6 @@
 
 ## 上課網頁
 https://meet.google.com/bio-hmps-bpr
+
+## 2023_10_14_早上
+[錄影](https://youtube.com/live/YWTf5MMuTlY)
