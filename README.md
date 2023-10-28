@@ -13,3 +13,7 @@ https://meet.google.com/bio-hmps-bpr
 ## [2023_10_21_早上1](https://youtube.com/live/_D8jTDrcVkk)
 
 ## [2023_10_21_下午](https://youtube.com/live/xilBp4OW_S4)
+
+## [2023_10_28_早上](https://youtube.com/live/OmaI3Lk14xs)
+
+## [2023_10_28_下午](https://youtube.com/live/bPO4ogiVKmE)
